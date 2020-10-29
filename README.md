@@ -1,4 +1,4 @@
-### Hi there 👋  I'm Karla (she, her)
+### Hi there 👋   I'm Karla (she, her)
 
 👩🏽‍💻 I am a Junior Full Stack Developer studying at Coder Academy Flex Track in Melbourne, Australia.
 
