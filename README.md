@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi there 👋 I'm Karla
+
+👩🏽‍💻 I am a Junior Full Stack Developer studying at Coder Academy Flex Track in Melbourne, Australia.
+
 
 <!--
 **karlatolentino/karlatolentino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
