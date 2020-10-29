@@ -6,7 +6,7 @@
 
 🌱 I have a very curious mind and am always willing to learn and try new things! My favourite thing to do in my spare time is box 🥊 or learn new ways to keep my plant babies alive 🌿
 
-💌 Please don't hesitate to reach out and connect with me through my socials.
+💌 Please don't hesitate to reach out and connect with me through my socials. Let's geek out together!
 
 
 <!--
