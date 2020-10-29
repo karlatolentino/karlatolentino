@@ -1,6 +1,12 @@
-### Hi there 👋 I'm Karla
+### Hi there 👋  I'm Karla (she, her)
 
 👩🏽‍💻 I am a Junior Full Stack Developer studying at Coder Academy Flex Track in Melbourne, Australia.
+
+🎮 I have a passion for all things tech! I love to geek out over video games, music, movies and pop culture.
+
+🌱 I have a very curious mind and am always willing to learn and try new things! My favourite thing to do in my spare time is box 🥊 or learn new ways to keep my plant babies alive 🌿
+
+💌 Please don't hesitate to reach out and connect with me through my socials.
 
 
 <!--
