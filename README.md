@@ -2,7 +2,7 @@
 
 👩🏽‍💻 I am a Junior Full Stack Developer studying at Coder Academy Flex Track in Melbourne, Australia.
 
-✂️ I am a Professional Men's Hairdresser/Barber by trade.
+✂️ I am a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
 
 🎮 I have a passion for all things tech! I love to geek out over video games, music, movies and pop culture.
 
