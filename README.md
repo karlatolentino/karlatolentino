@@ -10,8 +10,6 @@
 
 💌 Please don't hesitate to reach out and connect with me through my socials. Let's geek out together!
 
-💡 I’m currently working on a Ruby on Rails marketplace app...
-
 
 <!--
 **karlatolentino/karlatolentino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
