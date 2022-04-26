@@ -2,7 +2,7 @@
 
 👩🏽‍💻 I am a Software Developer Intern at HotDoc in Melbourne, Australia.
 
-✂️ I am a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
+✂️ I am also a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
 
 🎮 I have a passion for all things tech! I love to geek out over video games, music, movies and pop culture.
 
