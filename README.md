@@ -1,6 +1,6 @@
 ### Hi there 👋   I'm Karla (she, her)
 
-👩🏽‍💻 I am a Junior Full Stack Developer studying at Coder Academy Flex Track in Melbourne, Australia.
+👩🏽‍💻 I am a Software Developer Intern at HotDoc in Melbourne, Australia.
 
 ✂️ I am a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
 
