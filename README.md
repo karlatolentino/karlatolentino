@@ -4,7 +4,7 @@
 
 ✂️ I am also a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
 
-🎧 I have a passion project in DJing as KARMALITA 🔥 Ask me about my Soundcloud!
+🎧 I have a passion project in DJing as KARMALITA 🔥 Talk music with me!
 
 🎮 I have a passion for all things tech! I love to geek out over video games, music, movies and pop culture.
 
