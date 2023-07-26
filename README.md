@@ -1,6 +1,6 @@
 ### Hi there 👋   I'm Karla (she, her)
 
-👩🏽‍💻 I am a Software Developer Intern at HotDoc in Melbourne, Australia.
+👩🏽‍💻 I am a Software Developer Graduate in Melbourne, Australia.
 
 ✂️ I am also a Professional Men's Hairdresser/Barber and Freelance Photographer by trade.
 
